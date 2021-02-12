@@ -44,8 +44,7 @@ The Apostles answered with one voice, they said : "Jesus , , O Lord, are we born
 Chapter 5
 He has emanated ' him, being of this type ... This is the true God. He will set him up in this type as head'. He will be called Jeu '. Afterwards my Father will move him to bring forth other emanations, so that they fill these places. This is his name according to the treasuries 4 which are outside this. He will be called by this name: ..., that is to say: 'The true God' '. He will set him up in this type as head over the treasuries' which are outside this. This is the type of the treasuries over which he will set him as head, and this is the manner in which the treasuries are distributed, he being their head. This is the type in which he was before he was moved to bring forth emanations:
 
-![Chapter5
-](../../assets/texto.jpg) 
+![Chapter5](texto.jpg) 
 
 Jeu, the true God
 ....This is his type
@@ -58,14 +57,12 @@ He will be called the true God
 
 
 Furthermore he will be called Jeu. He will be father of a multitude of emanations. And a multitude of emanations will come forth from him through the command of my Father, and they themselves will be fathers of the treasuries. I will place a multitude as heads over them, and they will be called Jeu, the true God. It is he who will be father of all the Jeus, because he is an emanation of my Father. And the true God will emanate through the command of my Father. He will be head over them. He will move them ' and a multitude of emanations will come forth from all the Jeus, through the command of my Father when he moves them, and they will fill all the treasuries. And they will be called ranks of the Treasuries of the Light. Myriads upon myriads will come into existence from them. This now is the type in which the true. God is placed when he is about to be set up as head over the treasuries, before he has brought forth emanations over the treasuries, and before he has brought forth emanations, because my Father has not yet moved him to bring forth and to set up. This is his type which I have already set forth, but this is his type when he will bring forth emanations. This is the type of the true God in the manner in which he is placed:
-![Chapter5
-](../../assets/texto2.jpg)
+![Chapter5](texto2.jpg)
 
 
 The three lines which are thus, they are the voices which he will give out when he is commanded to sing praises to the Father, so that he himself brings forth emanations, and he also emanates This is the type of what he is:
 
-![Chapter5
-](../../assets/texto3.jpg) 
+![Chapter5](texto3.jpg) 
 
          This is his type when he brings forth
 
@@ -76,8 +73,7 @@ Chapter 6
 Hear now also the type of the treasuries how they are emanated; he will become head over them in this way, before he has emanated them; this is his type, as he is placed. Now the true God was of this type.
 
 
-![Chapter6
-](../../assets/texto4.jpg)
+![Chapter6](texto4.jpg)
 
             This is his character which is on his face thus
 
@@ -88,8 +84,7 @@ But I have called upon the name of my Father, so that he should move the true Go
 A power of my Father moved the true God. It radiated within him through this small idea (thought) ' which came forth from the treasuries of my Father. It radiated within the true God. A mystery moved him through my Father. The true God gave voice, saying thus: ... And when he had given voice, there came forth this voice which is the emanation. It was of this type as it proceeded forth from one side after another of each treasury. The first voice is this, which Jeu, the true God, called, which came forth from him, the one above. 
 
 
-![Chapter6
-](../../assets/texto5.jpg)
+![Chapter6](texto5.jpg)
 
 Jeu1) .... Place .... Jeu
 
@@ -105,8 +100,7 @@ which stand at the gate as the three ... ' This is the true God.
 When the true God. had emanated, this was his type:
 
 
-![Chapter6
-](../../assets/texto6.jpg)
+![Chapter6](texto6.jpg)
 
 ...Jeu the true God
 
@@ -121,8 +115,7 @@ from his place. For this reason he gave voice when the power welled up
 within him. This is the first voice which he uttered. He moved his emanations
 until they emanated:
 
-![Chapter
-](../../assets/texto7.jpg)
+![Chapter](texto7.jpg)
 
 (Jeu2)
 His name:
@@ -158,7 +151,7 @@ It welled up in him. he gave voice as he emanated
 This is the first emanation.
 
 These are the ranks which he has caused to be emanated. And there are twelve ranks in each treasury, these being their type: six heads on this side and six on that, turned towards each other. There will be a multitude of ranks standing in them outside these, all of which I will say. There are twelve heads in each rank, and the name belongs to them all, according to rank; this name is that of the twelve ', there being twelve heads in each rank. His name is this: ...
-![Chapter8](../../assets/texto8.jpg)
+![Chapter8](texto8.jpg)
 
 ...the three watchers are these
 
@@ -166,7 +159,7 @@ These are the ranks which he has caused to be emanated. And there are twelve ran
 
 Now the first rank of the treasury is the first which he made as emanation.
 I will take for myself twelve out of those ranks and place them so that they serve me.
-![Chapter9](../../assets/texto9.jpg)
+![Chapter9](texto9.jpg)
 
 (Jeu 3)
 
@@ -203,7 +196,7 @@ These are they which ... emanated, when the power radiated within him.
 He emanated twelve emanations, these being his twelve heads in each emanation,
 and this name is that of the twelve according to each one of the ranks, and these are
 one outside the other endlessly. These are the names of the emanations. 
-![Chapter10](../../assets/texto10.jpg)
+![Chapter10](texto10.jpg)
 
 
 (Jeu 4)
@@ -221,7 +214,7 @@ And there are twelve heads in the place of the treasury of his ranks; that is, t
 And these are one outside the other
 endlessly, except for their watchers. The names of the three watchers are: ......... 
 
-![Chapter11](../../assets/texto11.jpg)
+![Chapter11](texto11.jpg)
 
 (Jeu 5)
 His name:

@@ -7,7 +7,7 @@ date: 2020-04-16T11:00:00.000Z
 # Origen Against Celsus 2:2
 
 ![Origen
-](../../assets/origen.jpg) The unique nature of the forty-day teachings is implied, and the reason for secrecy is given.
+](origen.jpg) The unique nature of the forty-day teachings is implied, and the reason for secrecy is given.
 
 
 # Bibliography

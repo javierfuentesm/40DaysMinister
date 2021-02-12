@@ -6,8 +6,7 @@ date: 2020-04-16T11:00:00.000Z
 
 # Irenaeus, Against Heresies Book 4, Chapter 26
 
-![Irenaeus
-](../../assets/irenaeus.jpg) Irenaeus reports Jesus’ emphasis on preaching “the remission of sins” throughout the world (v.1)
+![Irenaeus](irenaeus.jpg) Irenaeus reports Jesus’ emphasis on preaching “the remission of sins” throughout the world (v.1)
 
 # Historical Context
 
