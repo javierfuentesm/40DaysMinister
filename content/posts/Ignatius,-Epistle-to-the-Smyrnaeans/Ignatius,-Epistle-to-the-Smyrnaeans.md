@@ -71,6 +71,7 @@ Chapter 7
 7:2 It is, therefore, proper to abstain from such, and not to speak concerning them, either in private or in public; but to attend to the prophets, and especially to the gospel, in which the passion hath been revealed unto us, and the resurrection hath been perfected.
 
 Chapter 8
+
 8:1 But avoid divisions, as being the beginning of evils. Do ye all follow the bishop, as Jesus Christ doth the Father; and follow the presbyters as the apostles; and have respect unto the deacons as unto the commandment of God. Let no one, apart from the bishop, do any of the things that appertain unto the church. Let that eucharist alone be considered valid which is celebrated in the presence of the bishop, or of him to whom he shall have entrusted it.
 
 8:2 Wherever the bishop appear, there let the multitude be; even as wherever Christ Jesus is, there is the Catholic Church. It is not lawful either to baptize, or to hold a love-feast without the consent of the bishop; but whatsoever he shall approve of, that also is well pleasing unto God, to the end that whatever is done may be safe and sure.
