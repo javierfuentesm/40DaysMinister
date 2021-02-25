@@ -42,6 +42,7 @@ The Apostles answered with one voice, they said : "Jesus , , O Lord, are we born
 Chapter 5
 He has emanated ' him, being of this type ... This is the true God. He will set him up in this type as head'. He will be called Jeu '. Afterwards my Father will move him to bring forth other emanations, so that they fill these places. This is his name according to the treasuries 4 which are outside this. He will be called by this name: ..., that is to say: 'The true God' '. He will set him up in this type as head over the treasuries' which are outside this. This is the type of the treasuries over which he will set him as head, and this is the manner in which the treasuries are distributed, he being their head. This is the type in which he was before he was moved to bring forth emanations:
 
+
 ![Chapter5](texto.jpg) 
 
 Jeu, the true God
