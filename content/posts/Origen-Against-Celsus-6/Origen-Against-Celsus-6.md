@@ -7,7 +7,7 @@ date: 2020-04-16T11:00:00.000Z
 # Origen Against Celsus 6:6
 
 ![Origen
-](../../assets/origen.jpg) Many secrets which were given to the Apostles were not written for hear that they could not be “adequately conveyed”. Many of these things were not intended to be given to the multitude of believers. The Apostles clearly distinguished between that which was to be written and that which was not.
+](origen.jpg) Many secrets which were given to the Apostles were not written for hear that they could not be “adequately conveyed”. Many of these things were not intended to be given to the multitude of believers. The Apostles clearly distinguished between that which was to be written and that which was not.
 
 # Bibliography
 Translation – Philip Schaff, The Fathers of the Third Century: Tertullian, Part Fourth. Christian Classics Ethereal Library. Origen Against Celsus, 6:6.

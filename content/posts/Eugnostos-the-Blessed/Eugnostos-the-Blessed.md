@@ -7,7 +7,7 @@ date: 2020-04-16T11:00:00.000Z
 # Eugnostos the Blessed / The Sophia of Jesus Christ
 
 ![The Sophia of Jesus Christ
-](../../assets/sophia.jpg) The Savior comes to His disciples on a mount in Galilee to explain the secret of His holy plan (90:15- 92:6)). The nature of the First Existent Unbegotten Father is explained, as is the androgyny of The Son. Gnostic eschatology concerning the aeons is explained. In order to depart to the eighth dwelling-place, necessity requires that the sign of the Son of Man be brought forth (117:8-118:2).
+](sophia.jpg) The Savior comes to His disciples on a mount in Galilee to explain the secret of His holy plan (90:15- 92:6)). The nature of the First Existent Unbegotten Father is explained, as is the androgyny of The Son. Gnostic eschatology concerning the aeons is explained. In order to depart to the eighth dwelling-place, necessity requires that the sign of the Son of Man be brought forth (117:8-118:2).
 
 
 # Historical Context

@@ -6,7 +6,7 @@ date: 2020-04-16T11:00:00.000Z
 
 # II Clement Chapter Five
 
-![Clement](../../assets/clement.jpg) It is stated that mysteries were given by the Lord to His Apostles, and have been “concealed” within the Old Testament. Reason for secrecy is also explained (p. 1)# Historial Context
+![Clement](clement.jpg) It is stated that mysteries were given by the Lord to His Apostles, and have been “concealed” within the Old Testament. Reason for secrecy is also explained (p. 1)# Historial Context
 Although the document is entitled 2 Clement, the document itself is written by an anonymous author sometimes in the second century C.E. Its title comes from its association with Clement of Rome, however, as early as the 4th century with Eusebius, there were doubts about the authorship. Much of 2 Clement draws from the sayings of Jesus in Matthew and Luke. Although originally thought to be an epistle, 2 Clement was most likely a homily or sermon that was transcribed in its present form.
 
 # Bibliography

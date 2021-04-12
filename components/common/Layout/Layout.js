@@ -69,7 +69,7 @@ const LargeTitle = () => (
           "dark:text-white"
         )}
       >
-        Next.Js Starter Blog
+        40-Day Ministry of Jesus Christ
       </a>
     </Link>
   </h1>
@@ -84,7 +84,7 @@ const SmallTitle = () => (
           "dark:text-white"
         )}
       >
-        Next.Js Starter Blog
+        40-Day Ministry of Jesus Christ
       </a>
     </Link>
   </h1>
